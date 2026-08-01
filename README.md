@@ -43,4 +43,4 @@ We may update this Privacy Policy from time to time. Any updates will be posted 
 ### Contact Us
 If you have any questions about this Privacy Policy, contact us at:
 
-**Email:** support@queueless.app
+**Email:** nwanekiee@gmail.com
